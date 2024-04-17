@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning ...(c)
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...@rash_me_krish_24
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: ...LIFE  -->SUCKS
+- ⚡ Fun fact: ...enJoy eVERy mINUTe
 
 <!---
 Krishnan0524/Krishnan0524 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
